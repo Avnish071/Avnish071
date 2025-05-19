@@ -2,7 +2,7 @@
 - 👀 currently working as a intern in Martvalley company
 - 🌱 I’m currently learning backend of website 
 - 💞️ I’m looking to collaborate on 
-- 📫 you can reach me on Instagram id=Avnish_071
+- 📫 Contact : stmavnish20@gmail.com
 - 😄 ⬆️
 - ⚡ start loving algorithm 
 
